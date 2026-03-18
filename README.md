@@ -1,4 +1,4 @@
-# CHiCO & HoneyWorks – 戦場の華 - Senjyo no Hana
+# CHiCO with HoneyWorks – 戦場の華
 
 > **歌詞登録ステータス：同期歌詞あり**
 
